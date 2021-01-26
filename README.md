@@ -6,4 +6,4 @@
 
 #### 🔭 I'm currently searching for an end-of-study 6-months internship ! I look forward to working with inspiring people and solving interesting challenges :muscle:
 
-##### If you want to contact me, feel free to email me at yann.kervella.pro@gmail.com or on [LinkedIn](https://www.linkedin.com/in/yann-kervella/) !
+##### If you want to contact me, feel free to email me at yann.kervella.pro@gmail.com or on [LinkedIn](https://www.linkedin.com/in/yannkervella/) !
